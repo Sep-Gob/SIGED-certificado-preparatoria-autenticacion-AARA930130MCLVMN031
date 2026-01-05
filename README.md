@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AARA930130MCLVMN031
+AARA930130MCLVMN03
